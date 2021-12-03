@@ -24,4 +24,4 @@
 
 [YouTube](https://www.youtube.com/)
 
-![Tajmahal](https://static.onecms.io/wp-content/uploads/sites/6/2017/01/cars-3-exclusive-2000.jpg)
+![Tajmahal](https://tripsonwheels.com/wp-content/uploads/2020/01/cover-5.jpg)
